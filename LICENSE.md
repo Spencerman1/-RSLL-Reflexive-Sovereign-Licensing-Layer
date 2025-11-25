@@ -23,7 +23,7 @@ Violators will be subject to legal action under U.S. intellectual property law a
 To request a license, contact:
 
 **Southern Star Pro. Studios L.L.C.**  
-Email: [insert contact email or website]
+Email: SpencerSouthern12@gmail.com
 
 ---
 
